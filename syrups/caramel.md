@@ -29,6 +29,7 @@
 
 ### Step 5
 
+
 - Once the bubbling slows, add vanilla and stir slowly to combine.
 
 ### Step 6
