@@ -6,6 +6,7 @@
 
 - 1 oz espresso roast
 - 1 cup almond milk (or milk of choice)
+- 3 sugars
 - Milk frother
 - Optional sweetener
 
